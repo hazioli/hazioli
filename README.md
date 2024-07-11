@@ -1,0 +1,3 @@
+-  Hi, I’m @hazioli
+- 🌱 I’m currently studying for a Bsc NatSci with a year in CompSci !! 
+-  Pronouns: he/him 
